@@ -1,4 +1,4 @@
-## boas vindas ao seu perfil #👋
+### Boas vindas ao meu perfil 💙
 
 Meu nome é Ana Clara de Oliveira
 
